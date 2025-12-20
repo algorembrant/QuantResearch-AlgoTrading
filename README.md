@@ -7,6 +7,4 @@ To make deployable models for trading, such as from `datafeed & datasets` `smart
 Wanna join making simple to complex Algorithmic Trading strategies? Of course, if you aren't lazy. All of Trading models aren't public, just saying, maybe you're thinking something trashy.
 
 
-*maybe you are qualified, dm me to join the limited team*
-
-*It's free (no need for an entrance fee), but in exchange is the quality of yourself as a human being*
+*maybe you are qualified, dm me to join the limited team. It's free (no need for an entrance fee), but in exchange is the quality of yourself as a human being*
