@@ -9,4 +9,4 @@ Wanna join making simple to complex Algorithmic Trading strategies? Of course, i
 
 *maybe you are qualified, dm me to join the limited team*
 
-*It's free (we don't need an entrance fee), but in exchange is the quality of yourself as a human being*
+*It's free (no need for entrance fee), but in exchange is the quality of yourself as a human being*
