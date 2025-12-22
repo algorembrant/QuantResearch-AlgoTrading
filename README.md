@@ -8,3 +8,5 @@ Wanna join making simple to complex Algorithmic Trading strategies? Of course, i
 
 
 *maybe you are qualified, dm me to join the limited team. It's free (no need for an entrance fee), but in exchange is the quality of yourself as a human being*
+
+you can directly access the *[Private Repository](https://github.com/algorembrant/QAT-QuantitativeAlgorithmicTrading)* here
